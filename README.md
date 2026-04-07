@@ -9,6 +9,6 @@ THE SEGA MEGA DRIVE drum kit
 
 | ALWAYS FREE!!!!!!!
 
-Telegram | t.me/kimmiunreal
-YouTube | youtube.com/@thekimmiunreal
-YouTube #2 | youtube.com/@kimmiunrealunsorted
+Telegram | t.me/kimmiprout
+YouTube | youtube.com/@kimmiprout
+YouTube #2 | youtube.com/@kimmiproutunsorted
