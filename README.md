@@ -8,7 +8,3 @@ THE SEGA MEGA DRIVE drum kit
  - presets
 
 | ALWAYS FREE!!!!!!!
-
-Telegram | t.me/kimmiprout
-YouTube | youtube.com/@kimmiprout
-YouTube #2 | youtube.com/@kimmiproutunsorted
